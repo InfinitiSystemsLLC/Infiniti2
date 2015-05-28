@@ -1,2 +1,2 @@
 # Infiniti2
-Infiniti 2 Product
+Infiniti 2 Large Solar Array
